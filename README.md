@@ -1,0 +1,1 @@
+# Actividad-5.-Regresi-n-Lineal-Simple.-Plataformas-de-anal-tica-
